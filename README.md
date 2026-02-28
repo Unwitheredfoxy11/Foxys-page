@@ -1,3 +1,1 @@
-# Foxys-page
-I hate my life
-lol
+no te hagas iluciones, esto es temporal
